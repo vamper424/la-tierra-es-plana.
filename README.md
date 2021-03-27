@@ -1,0 +1,2 @@
+# la-tierra-es-plana.
+Es un proyecto de trabajo harduo ( hardwork) que amerita y acepta a puros socios de dinero y magnates empresariales, dónde yo su servidor podrá hacer citas, banquetes de cóctel, y asociaciones externas para realizar un proyecto arquitectónico y manufacturero según sus siglas empresariales, en otras palabras se aceptarán solo personas inteligentes y dinámicas que no les guste el conflicto y que tengan en mente un proyecto multifuncional como lo acabo de explicar. 
